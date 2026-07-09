@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning **Next.js**
 
-- 💬 Ask me about **Web Development, MERN stack**
+- 💬 Ask me about **Web Development**
 
 - 📫 How to reach me **zankhansql@gmail.com**
 
