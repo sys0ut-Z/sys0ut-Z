@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **zankhansql@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1wRGAdsZ_y-_wKsQYYm5ErD5LIrBtJm-7/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1nUEupheSQVahlOG6mT7gISuGf6qBay5A/view?usp=drive_link)
 
 <h3 align="left">Connect with me: +91 6359499070</h3>
 <p align="left">
